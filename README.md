@@ -1,3 +1,8 @@
+# LJLee37
+## Belonging
+### Gachon Univ.
+#### Computer Engineering
+## 
 ### Hi there 👋
 
 <!--
